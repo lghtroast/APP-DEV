@@ -56,5 +56,3 @@ The soundtrack masterfully complements the emotions of each scene.
 
 ---
 
-## 🔗 Useful Links  
--
